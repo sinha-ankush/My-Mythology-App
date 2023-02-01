@@ -1,0 +1,3 @@
+Ajanta and Ellora, the eternal flame of mysticism, mythical and mysterious set of caves dedicated to Hindu Gods and Lord Buddha. One of the most prominent ones is the Kailashnath Temple which harbours the majestic idol of Lord Shiva. The mysterious of all temples in the world, Kailashnath Temple was carved out of a single stone and no one knows who or how it was built in those time with improper technology. Another astounding fact is the presence of smaller caves in Ajanta and Ellora; these are so small that it was practically impossible for a human or even a small boy to go inside and carve. Who were they, remain a worldly mystery yet to be solved. 
+
+Where: Ajanta, Maharashtra

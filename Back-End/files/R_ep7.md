@@ -1,0 +1,4 @@
+Considered by several scholars to be an interpolation to the original six chapters, this kanda narrates Rama's reign of Ayodhya, the birth of Lava and Kusha, the Ashvamedha yajna, and last days of Rama. At the expiration of his term of exile, Rama returns to Ayodhya with Sita, Lakshmana, and Hanuman, where the coronation is performed. On being asked to prove his devotion to Rama, Hanuman tears his chest open and to everyone's surprise, there is an image of Rama and Sita inside his chest. Rama rules Ayodhya and the reign is called Rama-Rajya (a place where the common folk is happy, fulfilled, and satisfied).
+
+After hearing from his ministers that his subjects were unhappy with the fact that their king had chosen to recouncile with a woman who had lived in the house of another man, Rama is furious as Sita had proved to everyone she was pure through the agnipariksha. In order to uphold his rank as the champion of dharma, Sita.
+

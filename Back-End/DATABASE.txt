@@ -1,0 +1,4 @@
+db_instance_name = "huex-mysql"%0A 
+db_name = "pooja-archana"%0A 
+db_username = "pooja-archana-user"%0A 
+db_port = "3306"%0A 

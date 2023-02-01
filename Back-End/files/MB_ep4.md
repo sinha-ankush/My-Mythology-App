@@ -1,0 +1,5 @@
+Pandavas are ready to go into their secret year of exile after completing the 12 years of normal exile. As they are wandering through the forests, they end up in a deep forest while chasing a deer.
+
+When the brothers and Draupadi are thirsty, the brothers start to look for some water source and end up at an enchanted lake. And this turned out to be one of their scariest and fascinating experience of their exile. The lake was controlled by divine power and when the brothers, one at a time, come over with the intention to drink water from the lake, a divine voice called out and asked them to answer a few questions before drinking a drop of water. When the brothers kept ignoring this warning, they immediately fell on the ground lifeless. 
+
+Finally, when Yudhishthra reached there, he paid heed to the divine voice and answered the questions before drinking any water. Eventually, he was able to convince the divine power.

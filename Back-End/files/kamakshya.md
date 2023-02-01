@@ -1,0 +1,3 @@
+The ancient tantric temple, where the Goddess is worshipped as Siddha Kubjika, is one of the Shakti Peeths where the womb and the vaginal part of the Goddess is said to have fell. Revered as Goddess Kameshwari, it is one of the most mystefying and holiest sites in the entire country. The Goddess is idolized as a young woman, approximately 16-years old with 12 arms and 6 heads of various colours wearing opulent jewellery and many garlands of red hibiscus. Now comes the astonishing part. Do you know that the Goddess here actually menstruates? The Ambubachi Mela is organized to witness the nearby river turn red for three consecutive days as Goddess Kamakhya is said to menstruate. Watching and being a part of the ceremony is considered pious. 
+
+Where: Guwahati, Assam

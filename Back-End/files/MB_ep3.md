@@ -1,0 +1,5 @@
+As the story continued, Arjuna reached the Himalayas and started to pursue penance. One day, a wild boar surged towards him and was about to attack. Arjuna being alert, pulled his bow and shot the boar. At the same time, another bow also hit the boar. Surprised Arjuna saw a hunter standing with a bow. Both of them started arguing about who hit the prey first. 
+
+Arjuna wondered who the hunter was, so he decided to pray to Lord Shiva. He then noticed that all the flowers which Arjuna offered to Lord Shiva were around the hunter’s neck. The Hunter, indeed, was Lord Shiva in disguise to test Arjuna’s strength. Lord Shiva blessed Arjuna with one of the most powerful weapons, the Pashupatastra. He also got several other celestial weapons from Lord Shiva. Arjuna had become invincible after obtaining all the divine and celestial weapons.
+
+Arjuna was then invited by Indra, the King of gods and also Arjuna’s divine father. Urvasi, one of the apsaras, cursed Arjuna to become a eunuch, 

@@ -1,0 +1,4 @@
+After Rama and Sita have been married, an elderly Dasharatha expresses his desire to crown Rama, to which the Kosala assembly and his subjects express their support. On the eve of the great event, Kaikeyi was happy about this, but was later on provoked by Manthara, a wicked maidservant, to claim two boons that Dasharatha had long ago granted her. Kaikeyi demands Rama to be exiled into the wilderness for fourteen years, while the succession passes to her son Bharata.
+
+The heartbroken king, constrained by his rigid devotion to his given word, accedes to Kaikeyi's demands. Rama accepts his father's reluctant decree with absolute submission and calm self-control which characterizes him throughout the story. He is joined by Sita and Lakshmana. When he asks Sita not to follow him, she says, "the forest where you dwell is Ayodhya for me, and Ayodhya without you is a veritable hell for me."
+ 
