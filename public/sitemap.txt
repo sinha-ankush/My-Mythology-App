@@ -1,0 +1,9 @@
+https://pooja-archana-frontend-urtjok3rza-wl.a.run.app/
+https://pooja-archana-frontend-urtjok3rza-wl.a.run.app/about-us
+https://pooja-archana-frontend-urtjok3rza-wl.a.run.app/mythological-stories
+https://pooja-archana-frontend-urtjok3rza-wl.a.run.app/characters
+https://pooja-archana-frontend-urtjok3rza-wl.a.run.app/festivals
+https://pooja-archana-frontend-urtjok3rza-wl.a.run.app/temples
+https://pooja-archana-frontend-urtjok3rza-wl.a.run.app/contact-us
+https://pooja-archana-frontend-urtjok3rza-wl.a.run.app/user/write-story
+https://pooja-archana-frontend-urtjok3rza-wl.a.run.app/user/profile
